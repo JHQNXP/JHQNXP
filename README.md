@@ -1,4 +1,4 @@
-### hey, i'm JHQNXP 🍙
+### halloooo, i'm JHQNXP 🍙
 
 random IT student fella just building things and learning along the way.
 
